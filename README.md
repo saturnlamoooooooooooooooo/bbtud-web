@@ -1,2 +1,1 @@
-# bbtud web
-
+ik the main owner of bbtud alr made a webport on his itch page i made this so ppl can put the game on there unblock game site or sum else idk
